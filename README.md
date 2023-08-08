@@ -1,6 +1,6 @@
 ### Olá! Eu sou o Matheus Quirino
 
-- 🌱 Estudando: Segundo semestre de Sistemas de Informações.
+- 🌱 Graduando Sistemas de Informações.
 - 📫 Contate-me no email: matheusf730@gmail.com
 - 👾 Estou a procura de novos conhecimentos.
 
